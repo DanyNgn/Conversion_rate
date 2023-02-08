@@ -14,4 +14,4 @@ Les data scientists qui ont créé la newsletter souhaitent mieux comprendre le 
 Dany Nguyen : dany.nguyen1997@gmail.com
 
 ## Présentation vidéo du projet : 
-en attente...
+https://share.vidyard.com/watch/hcK6n8FALRkFQSHhkHb8dk?
